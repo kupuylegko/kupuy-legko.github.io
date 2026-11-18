@@ -1,1 +1,0 @@
-# kupuy-legko.github.io
